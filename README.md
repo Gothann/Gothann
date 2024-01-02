@@ -1,1 +1,1 @@
-Korczzak
+Głownie szkolne projekty :)
