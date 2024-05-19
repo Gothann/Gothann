@@ -1,1 +1,1 @@
-Głownie szkolne projekty :)
+School projects!!
